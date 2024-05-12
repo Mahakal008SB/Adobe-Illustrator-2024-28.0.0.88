@@ -1,0 +1,1 @@
+# Adobe-Illustrator-2024-28.0.0.88
